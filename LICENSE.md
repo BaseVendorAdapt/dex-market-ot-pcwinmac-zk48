@@ -1,4 +1,4 @@
-# 
+# Turbo dex market making bot herramientas para Mac OS | Automático dex market making bot herramientas para PC Windows. Con señales de reversión y fuentes de precios en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
